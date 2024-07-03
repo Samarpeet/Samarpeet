@@ -13,7 +13,7 @@
 
 - 📄 Fing my Resume at [https://drive.google.com/file/d/1BG6FeTLlk-bbfQc21nM6Ztni_AZHINVc/view?usp=sharing]
 
-- 📄 Also you can read my published paper at [https://www.ijmit.org/Photo/IJMIT20230192R1_193R2_D.pdf]
+- 📄 Also you can read my published paper on Automated Irrigation System at [https://www.ijmit.org/Photo/IJMIT20230192R1_193R2_D.pdf]
 
 - ⚡ Fun fact **I love to Travel✈️ , Cook👨‍🍳 ,Read📖 , Play Sports🏃⚽🏊‍♂️ , Gaming 🎮**
 
