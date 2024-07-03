@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **garadsamarpeet@gmail.com**
 
-- 📄 Fing my Resume at [[https://drive.google.com/file/d/1f60zherXBU4Je7fzH1RQ0OTEK1Waxt-O/view?usp=sharing](https://drive.google.com/file/d/1f60zherXBU4Je7fzH1RQ0OTEK1Waxt-O/view?usp=sharing](https://drive.google.com/file/d/1BG6FeTLlk-bbfQc21nM6Ztni_AZHINVc/view?usp=sharing)
+- 📄 Fing my Resume at (https://drive.google.com/file/d/1BG6FeTLlk-bbfQc21nM6Ztni_AZHINVc/view?usp=sharing)
 
 - ⚡ Fun fact **I love to Travel✈️ , Cook👨‍🍳 ,Read📖 , Play Sports🏃⚽🏊‍♂️ , Gaming 🎮**
 
