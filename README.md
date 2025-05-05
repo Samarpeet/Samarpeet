@@ -7,7 +7,7 @@
 
 - 👨‍💻 Some of my projects are available at [https://github.com/Samarpeet?tab=repositories](https://github.com/Samarpeet?tab=repositories)
 
-- 💬 Ask me about **Python, ML/AI, Data Science, Cloud Computing & Cyber Security**
+- 💬 Ask me about **Python, ML/AI, Data Science, Cloud Computing, Cyber Security & Automated Testing**
 
 - 📫 How to reach me **garadsamarpeet@gmail.com**
 
